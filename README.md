@@ -1,1 +1,1 @@
-Asistencia en la iglesia NDI
+Asistencia en la iglesia para todos
